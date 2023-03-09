@@ -1,6 +1,6 @@
 ## Hi there 👋  I’m Varshni Ramdhani ✨
 
-I am currently actively applying for entry-level/ mid-senior level Data Analyst roles.
+I am currently working as a Data Governance Analyst at VF Corporation.
 
 I was born and raised in Paramaribo, Suriname (South America).
 
